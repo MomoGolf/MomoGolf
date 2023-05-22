@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @MomoGolf
+- 👀 I’m interested in Crypto Currency & Hospitality
+- 🌱 I’m currently learning each and everything possible to increase my knowledge , skills and experience 
+- 💞️ I’m looking to collaborate on creating a New Meme Coin
+- 📫 You can reach me through my email: m.a.specialsolutions@proton.me
+- 💪 I believe in myself and I know it! I'm going to be a billionaire soon.
+- 🙏 In my hard times, not a single person stood next to me.
+- 👇 My Failures are actually my initial and first steps of success .
+- 🏆 I'm Achieving my goals No matter what it takes. I'm ready to pay the price 
+- ✅ Let's get Started...
